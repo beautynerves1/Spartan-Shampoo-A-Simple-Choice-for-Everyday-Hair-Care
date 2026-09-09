@@ -1,0 +1,1 @@
+# Spartan-Shampoo-A-Simple-Choice-for-Everyday-Hair-Care
